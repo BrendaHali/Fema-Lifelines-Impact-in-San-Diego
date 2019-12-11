@@ -7,6 +7,7 @@
 * [Jessie Owens](https://www.linkedin.com/in/jessieowens/)
 * [John Kirby](https://www.linkedin.com/in/john-kirby-80701a121/)
 * [Larry Curran](https://www.linkedin.com/in/larry-curran-b37291195/)
+
 --- 
 
 ## Executive Summary
